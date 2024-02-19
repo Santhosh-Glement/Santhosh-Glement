@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Santhosh-Glement
-- 👀 I’m interested in product design & development. 
+- 👀 I’m interested in Product design & development. 
 - 🌱 I’m currently learning cyber security
 - 💞️ I’m looking to collaborate on creating projects usefull for real world
 - 📫 Ping me through mail - glementsanthosh@gmail.com
